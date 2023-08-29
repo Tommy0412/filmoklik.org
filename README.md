@@ -1,2 +1,0 @@
-# filmoklik.org
-filmoklik.org
